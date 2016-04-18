@@ -1,1 +1,0 @@
-# parksojeong.github.com
