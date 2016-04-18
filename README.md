@@ -1,1 +1,1 @@
-# Park-sojeong.github.com
+# parksojeong.github.com
